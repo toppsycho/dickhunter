@@ -2,5 +2,5 @@
 ============
 ## 신동훈
 ------------
-Link: [Google][googlelink] [googlelink]:https://youtu.be/6-O2y08P3sc
+![](https://yt3.ggpht.com/--GuuJwNlJng/AAAAAAAAAAI/AAAAAAAAAAA/QPmaE1T1Pug/s900-c-k-no-mo-rj-c0xffffff/photo.jpg)
 ![](http://ytimg.googleusercontent.com/vi/EziKjkqRARI/mqdefault.jpg)
